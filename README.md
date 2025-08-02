@@ -25,7 +25,7 @@
 ## 🌐 Connect with Me:
 - [LinkedIn](https://www.linkedin.com/in/shahalam-rayeen-104435319)
 - [GitHub](https://github.com/ShahAlam0306)
-- Or email at rayeenshakib7860@gmail.com
+- rayeenshakib7860@gmail.com
 
 ---
 
